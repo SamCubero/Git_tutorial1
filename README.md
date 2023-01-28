@@ -7,6 +7,6 @@
 
 ### AGE: 50
 
-### PROFESSION:  Web developer
+### PROFESSION:  Web developer and Conspiracy Theorist / Alex Jones fan (see  www.banned.video )
 
 ### CITY:  Brisbane Australia
